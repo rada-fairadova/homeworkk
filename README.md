@@ -10,4 +10,4 @@
 4. Я не люблю школу
 
 Пока!
-[](![image](https://github.com/user-attachments/assets/74c4f80d-5b41-4734-8714-143cd3adab39)
+![image](https://github.com/user-attachments/assets/74c4f80d-5b41-4734-8714-143cd3adab39)
